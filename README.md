@@ -1,3 +1,3 @@
-# Gihub - forking
+# Gihub - foreeeing
 
 # Jenny was here
